@@ -1,4 +1,4 @@
-## Senior Database Administrator || Database Engineer || Web Developer|| Graphic Designer 
+## Senior Database Administrator || Database Engineer
 
 ![](https://i.postimg.cc/QtbwLQMC/Pec.png) ![](https://ci3.googleusercontent.com/mail-sig/AIorK4xkM-NPGZKxotPunTOsLAtwNWO1yntlkQAVlzwt3LIyjC9-HzsBoCGfzlGxbn-lxFWJ98AIs14)
 
